@@ -9,7 +9,7 @@ _https://chat.whatsapp.com/E8NExJwIbhBJYzssfqJNsE_
 3. *Alphabot Support 3*
 _https://chat.whatsapp.com/KCSqHTky1apG7ApePsfiPy_
 4. *Alphabot Support 4* 
-_https://chat.whatsapp.com/KwmvHr7VMFj7r5ry9xmMsU_
+_https://chat.whatsapp.com/JWMl9LW5g0i0RSj7ophXAk_
 
 Jika ada link yang ke reset, silahkan hubungi
 owner untuk meminta link yang baru
